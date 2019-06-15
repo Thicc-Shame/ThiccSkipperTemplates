@@ -1,0 +1,2 @@
+# ThiccSkipperTemplates
+MemeTemplatesForThiccSkipper
